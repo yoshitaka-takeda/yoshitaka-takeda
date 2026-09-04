@@ -1,1 +1,1 @@
-Blank... as if void of your daily
+Blank (Not exactly one)... as if void of your daily
