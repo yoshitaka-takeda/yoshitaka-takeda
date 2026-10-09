@@ -1,3 +1,3 @@
 Blank (Not exactly one)... as if void of your daily
 
-Not here? Perhaps busy in gitlab
+No presence here? Perhaps busy at another remote git service.
